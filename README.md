@@ -1,0 +1,1 @@
+# Qudrat_Technology_logo2
